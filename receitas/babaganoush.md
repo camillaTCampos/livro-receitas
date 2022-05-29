@@ -11,7 +11,7 @@
  
 ### ** Modo de fazer**
 
- - Asse a berinjela inteira (sem cortes) em brasa ou diretamente na chama do fogão.
+ - Asse a berinjela inteira (sem cortes) em brasa ou diretamente na chama do fogão
  - Descasque a berinjela ainda quente
  - misture a polpa a todos os ingredientes e sirva-se à vontade!
 
